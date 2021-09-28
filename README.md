@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @CoolGeekPerson
+- 👀 I’m interested in stuff
+- 🌱 I’m currently learning for Psychometric Entrance exam
